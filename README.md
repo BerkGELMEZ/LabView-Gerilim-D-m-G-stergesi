@@ -1,0 +1,1 @@
+# LabView-Gerilim-D-m-G-stergesi
